@@ -6,6 +6,7 @@
 - Fraud in office
 - Improper exercise of power
 - Misuse of information
+- Police or law enforcement brutality
 
 ## Crimes against the person
 
