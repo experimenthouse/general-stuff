@@ -32,7 +32,7 @@
 - Election fraud
 - Perverting the course of justice
 
-## Receiving undue Benefits
+## Receiving undue benefits
 
 - Kickbacks
 - Proceeds of crime
